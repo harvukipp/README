@@ -1,6 +1,3 @@
-![Screenshot_2025-02-22-14-45-06-075](https://github.com/user-attachments/assets/8b1b9749-a3c4-42d2-b88c-e47d0b7bffca)
-
-
 **SUP!!**
 
  ✦
