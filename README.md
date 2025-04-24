@@ -1,3 +1,5 @@
+![Untitled5_20250225152137](https://github.com/user-attachments/assets/092e78a3-7926-448d-86f1-5bed91b061f2)
+
 **SUP!!**
 
  ✦
@@ -50,5 +52,23 @@
 # -platonic love........ 😁😁👅😁😁😁 who said that
 
 ## ~~... anyways. socials and stuff~~
+
+![Screenshot_2025-04-24-03-38-14-465](https://github.com/user-attachments/assets/df182ada-f13d-477c-91e1-e726f72a08b7)
+
+![Screenshot_2025-04-24-03-40-25-804](https://github.com/user-attachments/assets/df78426a-18f2-44c8-a6f2-8488fdd912bf)
+
+![Screenshot_2025-04-24-03-41-08-411](https://github.com/user-attachments/assets/cee5ce22-2cdb-4d6b-9590-084c3a0ce40f)
+
+
+
+
+
+
+
+
+
+bye
+![Screenshot_2025-04-23-02-28-31-995](https://github.com/user-attachments/assets/29a13f76-04dc-4e14-9e43-8d449c64ecb5)
+
 
 
